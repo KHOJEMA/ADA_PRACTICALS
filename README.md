@@ -1,2 +1,7 @@
 # ADA_PRACTICALS
-Nothing , just more over coding stuff here !
+Nothing , just more over lab stuff here !
+
+HOPE YOU ARE DOING FINE KARAN SIR , ALREADY DONE WHAT YOU HAVE TOLD IN CLASSROOM 
+
+
+THANK YOU !
